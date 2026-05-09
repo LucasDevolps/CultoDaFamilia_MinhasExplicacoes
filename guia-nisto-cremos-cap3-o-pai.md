@@ -95,3 +95,8 @@ Mais importante do que parecer cristão…
 ## Pergunta final para o grupo
 
 > Eu sigo a Deus por amor verdadeiro ou apenas por costume, medo ou tradição?
+
+---
+
+IASD Joaniza
+Lucas R. Souza

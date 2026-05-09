@@ -80,7 +80,6 @@ mas poucas realmente convivem com Deus.
 
 # Conclusão
 
-O vídeo nos lembra que:
 - Deus quer transformação.
 - Deus quer sinceridade.
 - Deus quer relacionamento verdadeiro.
